@@ -136,5 +136,6 @@ I'm coming from a healthcare background and am now transitioning into IT and cyb
 I'm still early on, so if you spot something I've got wrong, missed, or could explain better, I'd genuinely appreciate the feedback — feel free to reach out.
 
 **LinkedIn:** https://www.linkedin.com/in/samuel-donkor-9258aa223?utm_source=share_via&utm_content=profile&utm_medium=member_ios)
+
 **Email: samuelcyber02@gmail.com
 
